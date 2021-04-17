@@ -1,1 +1,1 @@
-# lojja
+# ami kichu parina
